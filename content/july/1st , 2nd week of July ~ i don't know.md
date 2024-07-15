@@ -14,6 +14,19 @@ i dont know yaar , subah mummy bol rahi thi ki shaam ko phone mat lekar jaaya ka
 
 soooo tomorroww we will meeeeetttt
 FUCK yes 
+
 soo tomorrow , gand maregi , she is gonna take me to those rides
 bas kahi bezzati na ho jaye
+
 lets see what happens tomorrow
+
+## sunday
+
+sooo yesterday was the best day ever , we went to heavens , then went to eat chhole kulche and then to trade fair 
+
+i was craving to kiss her so much but didnt get the chance to 
+LOVE YOU SOOO MUCH YAARRR 
+
+tomorrow , monday , i will go to give her the test kit , i hope everything turns out normal
+
+![[WhatsApp Image 2024-07-15 at 07.01.36_4adf034e.jpg]]![[WhatsApp Image 2024-07-15 at 07.01.36_840ee775.jpg]]![[WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
