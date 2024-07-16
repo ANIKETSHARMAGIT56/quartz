@@ -28,6 +28,6 @@ many many happy returns of the day
 
 ### other stuff -->
 
-[[pictures]]
+[[pictures| ]]
 
-[[Poems]]
+[[Poems| ]]
