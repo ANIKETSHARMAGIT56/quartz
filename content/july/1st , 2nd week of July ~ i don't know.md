@@ -27,7 +27,7 @@ sooo yesterday was the best day ever , we went to heavens , then went to eat chh
 i was craving to kiss her so much but didnt get the chance to 
 LOVE YOU SOOO MUCH YAARRR 
 
-tomorrow , monday , i will go to give her the test kit , i hope everything turns out normal
+tomorrow , Monday , i will go to give her the test kit , i hope everything turns out normal
 
 ![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_4adf034e.jpg]]![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_840ee775.jpg]]![[Assets/WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
 [[July| ]]

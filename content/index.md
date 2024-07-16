@@ -1,5 +1,5 @@
 ---
-title: Happy birthday drishti
+title: "Happy birthday drishti"
 ---
  i love you so much , i have been waiting for this day for a loooongg time
 
@@ -17,6 +17,7 @@ youre the best
 
 many many happy returns of the day
 
+
 # months -->
 
 ## [[March|March->]]
@@ -24,3 +25,9 @@ many many happy returns of the day
 ## [[May|May->]]
 ## [[June|June->]]
 ## [[July|July->]]
+
+### other stuff -->
+
+[[pictures]]
+
+[[Poems]]
