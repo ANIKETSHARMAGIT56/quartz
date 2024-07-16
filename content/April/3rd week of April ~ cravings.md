@@ -24,3 +24,4 @@ With love - Aniket
 I want to keep writing but I can't think of anything more to write. I'll write more next week my love , byee for now
 
 ![[18f0c04e688.b83dcc5af7226815.jpg]]![[18f0c04e6aa.96a82563707f303c.jpg]]![[18f0c06f9ff.a5b788b26ba8e704.jpg]]
+[[2nd week of April ~ meetings| ]]

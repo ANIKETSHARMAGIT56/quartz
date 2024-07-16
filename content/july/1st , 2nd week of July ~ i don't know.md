@@ -29,4 +29,5 @@ LOVE YOU SOOO MUCH YAARRR
 
 tomorrow , monday , i will go to give her the test kit , i hope everything turns out normal
 
-![[WhatsApp Image 2024-07-15 at 07.01.36_4adf034e.jpg]]![[WhatsApp Image 2024-07-15 at 07.01.36_840ee775.jpg]]![[WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
+![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_4adf034e.jpg]]![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_840ee775.jpg]]![[Assets/WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
+[[July| ]]

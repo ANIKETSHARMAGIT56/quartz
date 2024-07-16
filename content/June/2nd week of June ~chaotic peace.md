@@ -16,3 +16,5 @@ Maii kitna Vella hu right now , kuch ni to yahi likhne lag gaya , so ab likh hi 
 When you are reading this
 Text me or just tell me if I'm with you 
 What do you think my personality is 
+
+[[1st week of June ~confusion| ]]
