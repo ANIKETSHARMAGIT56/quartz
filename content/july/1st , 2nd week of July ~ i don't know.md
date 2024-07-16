@@ -29,5 +29,7 @@ LOVE YOU SOOO MUCH YAARRR
 
 tomorrow , Monday , i will go to give her the test kit , i hope everything turns out normal
 
-![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_4adf034e.jpg]]![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_840ee775.jpg]]![[Assets/WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
-[[July| ]]
+![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_4adf034e.jpg]]![[Assets/WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
+[[3rd week of July ~ relief|next->]]
+
+[[17 June ~ apology|prev->]]

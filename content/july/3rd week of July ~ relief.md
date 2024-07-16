@@ -24,4 +24,28 @@ and btw the graph looks cool lol
 sooo now ill go study 
 love you meri jaannn 
 your Aniket
-[[1st , 2nd week of July ~ i don't know| ]]
+
+
+# Wednesday
+
+so she got food poisoning , i hope she gets well soon , she has been having chest pain and having problems breathing, i dont want her to be suffering like this
+
+so meri jaan , get well soon , my hugs are waiting for you , youre the best girl ive ever met , youre the best.
+
+its almost 1 am i should go sleep but i cant sleep
+still lemme try 
+
+i love you drishti , my pandaa
+good nightt
+
+[[16 March 2024|starting->]]
+
+[[1st , 2nd week of July ~ i don't know|prev->]]
+
+
+
+### other stuff -->
+
+[[pictures|pictures]]
+
+[[Poems|poems]]

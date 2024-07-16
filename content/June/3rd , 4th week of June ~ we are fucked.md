@@ -12,4 +12,5 @@ Not gonna lie they were really cute , me and himank tried to teach them binary c
 
 ![[1906a283b5b.9697ed0932d84499.jpg]]![[1906a283b8c.8d1cde88ecbe4418.jpg]]![[1906a297311.89b812488a38aca8.jpg]]![[1906a297327.a42e8490faaa9b4e.jpg]]![[1906a29733d.a8917c385173ba57.jpg]]![[1906a29735d.a4a4f67bd4745d00.jpg]]
 
+[[17 June ~ apology]]
 [[2nd week of June ~chaotic peace| ]]

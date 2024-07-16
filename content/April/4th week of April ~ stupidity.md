@@ -19,5 +19,6 @@ fir process Kia thoda.ITS PAST 12 OFCOURSE ITS MONDAY,
 
 EK CHAATA MAAR DE MUJHE
 
+[[1st week of may~ overcome|next->]]
 
-[[3rd week of April ~ cravings| ]]
+[[3rd week of April ~ cravings|prev->]]

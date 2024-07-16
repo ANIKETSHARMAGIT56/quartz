@@ -6,4 +6,6 @@ The best thing is she planned out everything about her future , she will focus o
 
 Drishti if you're seeing this , I just want to cry hugging you , I'm so happy , I can't wait for the day I give you this whole journal , I want to see you smile and laugh, you're the best I swear , most perfect girl ever. I love you so much
 
-[[1st week of may~ overcome| ]]
+[[3rd and 4th week of may ~ idk|next->]]
+
+[[1st week of may~ overcome|prev->]]

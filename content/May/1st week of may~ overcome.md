@@ -14,4 +14,6 @@ Radhe radhe
 AAAAA WE MET TODAY , IT WAS SO FKING GOOD 
 Drishti if youre reading thiss ,hehehehhe I got skills
 
-[[May| ]]
+[[2nd week of may ~ good times|next->]]
+
+[[4th week of April ~ stupidity|prev->]]

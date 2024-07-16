@@ -1,4 +1,3 @@
-
 So yeah yesterday tahani told me all about how yash treated her terribly and all the bad shit that is happening , I hope it gets better soon and that predator leaves tahani alone , and tohid's mess too , what he has done , I'm disgusted with these people , yash and tohid , fucking animals , keeping this aside 
 
 (12 June)
@@ -17,4 +16,6 @@ When you are reading this
 Text me or just tell me if I'm with you 
 What do you think my personality is 
 
-[[1st week of June ~confusion| ]]
+[[3rd , 4th week of June ~ we are fucked|next->]]
+
+[[1st week of June ~confusion|prev->]]

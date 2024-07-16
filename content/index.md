@@ -17,17 +17,11 @@ youre the best
 
 many many happy returns of the day
 
-
 # months -->
 
-## [[March|March->]]
-## [[April|April->]]
-## [[May|May->]]
-## [[June|June->]]
-## [[July|July->]]
+## [[16 March 2024|March->]]
+## [[1st week of April ~ anxiety|April->]]
+## [[1st week of may~ overcome|May->]]
+## [[1st week of June ~confusion|June->]]
+## [[1st , 2nd week of July ~ i don't know|July->]]
 
-### other stuff -->
-
-[[pictures| ]]
-
-[[Poems| ]]

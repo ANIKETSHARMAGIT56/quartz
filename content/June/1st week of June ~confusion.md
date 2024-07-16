@@ -12,5 +12,6 @@ Your aniket
 
 ![[18ff929aae0.9a9c19c4b095828c.jpg]]![[18ff929e6d3.acb99cdca3e16b2b.jpg]]
 
+[[2nd week of June ~chaotic peace|next->]]
 
-[[June]]
+[[last day of may ~ garmiiiii|prev->]]

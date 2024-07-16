@@ -22,4 +22,6 @@ im just waiting for the next day i meet you i will kiss you so much
 
 at last when i hugged you , i felt so light and relieved
 
-[[1st week of April ~ anxiety| ]]
+[[3rd week of April ~ cravings|next->]]
+
+[[1st week of April ~ anxiety|prev->]]
