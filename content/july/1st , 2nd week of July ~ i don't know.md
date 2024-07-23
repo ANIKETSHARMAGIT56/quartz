@@ -29,7 +29,17 @@ LOVE YOU SOOO MUCH YAARRR
 
 tomorrow , Monday , i will go to give her the test kit , i hope everything turns out normal
 
-![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_4adf034e.jpg]]![[Assets/WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
+![[Assets/WhatsApp Image 2024-07-15 at 07.01.36_4adf034e.jpg]]
+
+AHHHHH JUST SEE HER FACE IN THE PHOTO , SHE LOOKS LIKE A CUTE LITTLE BABYYYYY
+SO FKIN CUTE
+
+
+
+![[Assets/WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0RJ7HhnQxJEOpGC5Htmez4?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 [[3rd week of July ~ relief|next->]]
 
 [[17 June ~ apology|prev->]]

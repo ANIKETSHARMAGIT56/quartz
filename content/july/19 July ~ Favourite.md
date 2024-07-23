@@ -32,6 +32,6 @@ this goldfish forgets everything and goes straight for your lips, not gonna lie 
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7bOxSmco2236p74tqu41PU?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-[[16 March 2024|starting->]]
+[[21 July ~ i miss you| next->]]
 
 [[3rd week of July ~ relief|prev->]]
