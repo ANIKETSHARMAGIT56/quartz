@@ -1,3 +1,6 @@
+play this song
+![[iraadey.mp3]]
+
 I miss you  
 I miss everything about you , your eyes, your face ,your talks , I'm scared , and I know you are too , be brave my panda , everything will be alright , it's a minor operation , you will be totally fine after some days , and when we meet I'll give you a tight hug ,and take away all your pain ,you're the most precious thing I have , and we will meet soon , I'll kiss you , I'll kiss your whole face , I'll kiss every corner of your face , I'll make you blush.  
 I love you  
@@ -13,8 +16,6 @@ But right now , I'm clueless , I don't know when is your operation , how are you
 Always yours  
 Aniket  
 I love you
-
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6qrifdo7QINdPQr80IelGi?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 [[22 July ~ i can't sleep| next->]]
 

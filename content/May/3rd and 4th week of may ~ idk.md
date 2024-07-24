@@ -1,4 +1,4 @@
-
+![[phir le aya dil.mp3]]
 Couldn't write the journal for the 3rd week , I kinda got busy so yeah I'll write for 3rd and 4th together
 
 First , I love you meri jaan , take care of yourself , you've been getting Sick a lot lately , eat well , I don't want you to get weak , and right now I'm sitting in the train coming back to alwar , I can't wait for the next month when we meet , it will be so fkin good , here are some pictures that I took

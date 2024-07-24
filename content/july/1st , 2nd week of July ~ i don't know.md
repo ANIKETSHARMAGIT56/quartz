@@ -1,3 +1,5 @@
+play this song
+![[iktara.mp3]]
 ## friday
 
 i don't even know what the fuck is happening 
@@ -38,7 +40,6 @@ SO FKIN CUTE
 
 ![[Assets/WhatsApp Video 2024-07-15 at 07.01.36_816c5012.mp4]]
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0RJ7HhnQxJEOpGC5Htmez4?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 [[3rd week of July ~ relief|next->]]
 

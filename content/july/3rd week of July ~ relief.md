@@ -1,3 +1,5 @@
+play this song
+![[aaj kal zindagi.mp3]]
 # Monday
 
 sooo today i went to give her the test kit , and thankfully the result was negative, although we knew it already , its good to have some confirmation , so yeah now im lot more relieved
@@ -38,7 +40,6 @@ still lemme try
 i love you drishti , my pandaa
 good nightt
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4MnDLNhqL6HuSzFO4b4rvJ?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 [[19 July ~ Favourite|next->]]
 

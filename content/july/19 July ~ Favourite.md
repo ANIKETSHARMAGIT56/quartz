@@ -1,8 +1,10 @@
+![[dhalti rahe.mp3]]
 # thursday
 
 
 today was the best day reallyyyy , she messaged me and did all this
 
+note->
 ![[WhatsApp Audio 2024-07-18 at 20.58.29_240dc7e7.waptt.mp3]]
 
 ![[Recording 2024-07-18 210638 1.mp4]]
@@ -29,8 +31,6 @@ this goldfish forgets everything and goes straight for your lips, not gonna lie 
 >the thing that ill never forget , that is certainly you ,and if you ask me what my fav color is , i wont say yellow , it will be something new
 
 >my fav color is "you"
-
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7bOxSmco2236p74tqu41PU?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 [[21 July ~ i miss you| next->]]
 
