@@ -33,7 +33,3 @@ jis din uski saaso ko
 apne dil par mehsoos karu
 muddato ki jama ki hui takat ko
 akho me bhar ke jee jau
-
-
-
-[[Poems| ]]

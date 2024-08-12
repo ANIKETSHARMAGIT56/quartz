@@ -30,6 +30,6 @@ so yesterday i wrote something , not that good , but ill just attach it here any
 	Mehez kuch lafz chahiye tujhe pyaar ke, kya mai ab tak tujhe wo de paya kya?
 
 
-[[16 March 2024|starting->]]
+[[30 July ~ habit|next->]]
 
 [[22 July ~ i can't sleep|prev->]]

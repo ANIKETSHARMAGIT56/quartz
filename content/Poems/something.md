@@ -13,5 +13,3 @@ My brain goes numb as I look
 Look at her smile
 Catching glimpses of her
 Although I know she's already mine
-
-[[Poems| ]]
