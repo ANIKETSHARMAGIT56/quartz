@@ -20,3 +20,5 @@ I love you
 [[22 July ~ i can't sleep| next->]]
 
 [[19 July ~ Favourite|prev->]]
+
+[[index|homepage]]

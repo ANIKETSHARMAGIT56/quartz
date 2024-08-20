@@ -33,3 +33,5 @@ so yesterday i wrote something , not that good , but ill just attach it here any
 [[30 July ~ habit|next->]]
 
 [[22 July ~ i can't sleep|prev->]]
+
+[[index|homepage]]

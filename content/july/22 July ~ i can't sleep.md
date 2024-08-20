@@ -19,3 +19,5 @@ Radhe radheeee
 [[27 July ~ yet another all nighter|next->]]
 
 [[21 July ~ i miss you|prev->]]
+
+[[index|homepage]]

@@ -9,3 +9,5 @@ I still can't believe itni jaldi 6 months nikal gaye , pata ni hu chala , though
 [[1st , 2nd week of July ~ i don't know|next->]]
 
 [[3rd , 4th week of June ~ we are fucked|prev->]]
+
+[[index|homepage]]

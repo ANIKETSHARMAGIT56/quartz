@@ -15,6 +15,8 @@ i dont wanna live shallowly anymore , i feel so suffocated for some days , i jus
 
 and umm , tahani just broke up with yash ,i dont have anything to say anymore , atleast she wont suffer anymore , and ummm , ill go do my stuff now and try to stop these thoughts and distract myself
 
-[[6 August ~ best day|next->]]
+[[10 August ~ im excited as fuck|next->]]
 
-[[31 July ~ relief|prev->]]
+[[6 August ~ best day|prev->]]
+
+[[index|homepage]]

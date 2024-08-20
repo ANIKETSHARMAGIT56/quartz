@@ -12,3 +12,5 @@ good night my panda , i hope youre sleeping well
 [[31 July ~ relief|next->]]
 
 [[27 July ~ yet another all nighter|prev->]]
+
+[[index|homepage]]

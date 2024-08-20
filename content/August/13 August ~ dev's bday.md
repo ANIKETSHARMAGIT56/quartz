@@ -21,3 +21,9 @@ love youuu meri drishtiiiiiiiii
 
 and and , hayyee this kissiii , im dyinggg
 ![[WhatsApp Image 2024-08-13 at 22.02.12_45583db1.jpg]]
+
+[[17 August ~ lets be alone together|next->]]
+
+[[12 August ~ i need slaps|prev->]]
+
+[[index|homepage]]

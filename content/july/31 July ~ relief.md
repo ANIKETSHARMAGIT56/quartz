@@ -5,6 +5,8 @@ soo august is gonna start soon , our both's birthdays are coming soon , you wont
 soooo ill go sleep now , i love you meri jaan , good night take care
 your aniket
 
-[[8 August ~ I miss you more now|next->]]
+[[6 August ~ best day|next->]]
 
 [[30 July ~ habit|prev->]]
+
+[[index|homepage]]

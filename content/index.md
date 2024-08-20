@@ -94,7 +94,21 @@ tip : wherever you see a song , play it before you start reading ;) , love you
 >[[31 July ~ relief]]
 ## August
 
+>[[6 August ~ best day]]
+>
 >[[8 August ~ I miss you more now]]
+>
+>[[10 August ~ im excited as fuck]]
+>
+>[[11 August ~ youll be better]]
+>
+>[[12 August ~ i need slaps]]
+>
+>[[13 August ~ dev's bday]]
+>
+>[[17 August ~ lets be alone together]]
+>
+>[[18 August ~ im unbearably happy]]
 
 # other stuff 
 

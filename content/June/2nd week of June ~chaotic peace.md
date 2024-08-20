@@ -19,3 +19,5 @@ What do you think my personality is
 [[3rd , 4th week of June ~ we are fucked|next->]]
 
 [[1st week of June ~confusion|prev->]]
+
+[[index|homepage]]

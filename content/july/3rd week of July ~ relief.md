@@ -44,3 +44,5 @@ good nightt
 [[19 July ~ Favourite|next->]]
 
 [[1st , 2nd week of July ~ i don't know|prev->]]
+
+[[index|homepage]]

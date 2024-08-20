@@ -15,3 +15,5 @@ Your aniket
 [[2nd week of June ~chaotic peace|next->]]
 
 [[last day of may ~ garmiiiii|prev->]]
+
+[[index|homepage]]

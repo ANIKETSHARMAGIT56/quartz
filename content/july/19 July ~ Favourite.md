@@ -35,3 +35,5 @@ this goldfish forgets everything and goes straight for your lips, not gonna lie 
 [[21 July ~ i miss you| next->]]
 
 [[3rd week of July ~ relief|prev->]]
+
+[[index|homepage]]

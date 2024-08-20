@@ -10,3 +10,10 @@ and one more thing , i might be wrong with the color but i didnt miss the point 
 
 good night
 yours and only yours , Aniket
+
+[[13 August ~ dev's bday|next->]]
+
+[[11 August ~ youll be better|prev->]]
+
+[[index|homepage]]
+

@@ -14,6 +14,8 @@ and i just watched chennai express yesterday , man i love its songs , they are s
 
 so yeah now ill go sleep , good night my panda , take care and have a good sleep
 
-[[16 March 2024|starting->]]
+[[8 August ~ I miss you more now|next->]]
 
-[[8 August ~ I miss you more now|prev->]]
+[[31 July ~ relief|prev->]]
+
+[[index|homepage]]

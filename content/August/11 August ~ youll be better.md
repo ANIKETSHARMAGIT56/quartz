@@ -14,3 +14,9 @@ every single goddamn day
 signing off
 your aniket
 i love youuu
+
+[[12 August ~ i need slaps|next->]]
+
+[[10 August ~ im excited as fuck|prev->]]
+
+[[index|homepage]]

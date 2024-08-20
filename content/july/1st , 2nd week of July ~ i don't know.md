@@ -44,3 +44,5 @@ SO FKIN CUTE
 [[3rd week of July ~ relief|next->]]
 
 [[17 June ~ apology|prev->]]
+
+[[index|homepage]]
