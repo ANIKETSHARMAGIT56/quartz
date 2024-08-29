@@ -19,4 +19,4 @@ i love youuu
 
 [[10 August ~ im excited as fuck|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

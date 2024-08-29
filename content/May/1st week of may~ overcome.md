@@ -18,4 +18,4 @@ Drishti if youre reading thiss ,hehehehhe I got skills
 
 [[4th week of April ~ stupidity|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

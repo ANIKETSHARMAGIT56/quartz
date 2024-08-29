@@ -29,4 +29,4 @@ I want to keep writing but I can't think of anything more to write. I'll write m
 
 [[2nd week of April ~ meetings|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

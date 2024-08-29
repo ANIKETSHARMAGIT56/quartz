@@ -45,4 +45,4 @@ SO FKIN CUTE
 
 [[17 June ~ apology|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

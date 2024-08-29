@@ -6,4 +6,4 @@ sooooo ill attach some photos below now , i love you my pandaa , take care and g
 
 [[8 August ~ I miss you more now|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

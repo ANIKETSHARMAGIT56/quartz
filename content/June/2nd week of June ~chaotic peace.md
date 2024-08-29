@@ -20,4 +20,4 @@ What do you think my personality is
 
 [[1st week of June ~confusion|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

@@ -16,4 +16,4 @@ Your aniket
 
 [[last day of may ~ garmiiiii|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

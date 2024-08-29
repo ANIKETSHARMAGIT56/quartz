@@ -26,4 +26,4 @@ at last when i hugged you , i felt so light and relieved
 
 [[1st week of April ~ anxiety|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

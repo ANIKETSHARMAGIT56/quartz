@@ -15,5 +15,5 @@ yours and only yours , Aniket
 
 [[11 August ~ youll be better|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]
 

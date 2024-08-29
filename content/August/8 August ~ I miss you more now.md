@@ -19,4 +19,4 @@ and umm , tahani just broke up with yash ,i dont have anything to say anymore , 
 
 [[6 August ~ best day|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

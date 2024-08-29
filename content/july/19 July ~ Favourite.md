@@ -36,4 +36,4 @@ this goldfish forgets everything and goes straight for your lips, not gonna lie 
 
 [[3rd week of July ~ relief|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

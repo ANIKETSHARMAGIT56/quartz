@@ -7,3 +7,10 @@ hehehhehe yeasssssssssss
 ![[Pasted image 20240821000502.jpg]]![[Pasted image 20240821000516.jpg]]
 
 ![[Pasted image 20240821000521.jpg]]
+
+
+[[25 August ~|next->]]
+
+[[18 August ~ im unbearably happy|prev->]]
+
+[[happy birthday my love|homepage->]]

@@ -22,4 +22,4 @@ you said i looked handsome
 
 [[13 August ~ dev's bday|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

@@ -12,7 +12,8 @@ i got the best wife material
 and now the best behen tooo 😭😭
 ![[Pasted image 20240818010909.jpg]]
 
+[[20 August ~ it was fun|next->]]
 
 [[17 August ~ lets be alone together|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

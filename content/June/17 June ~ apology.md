@@ -10,4 +10,4 @@ I still can't believe itni jaldi 6 months nikal gaye , pata ni hu chala , though
 
 [[3rd , 4th week of June ~ we are fucked|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

@@ -23,4 +23,4 @@ Ennaku unna pidikum
 
 [[30,31 March 2024|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

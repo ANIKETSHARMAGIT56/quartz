@@ -13,4 +13,4 @@ good night my panda , i hope youre sleeping well
 
 [[27 July ~ yet another all nighter|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

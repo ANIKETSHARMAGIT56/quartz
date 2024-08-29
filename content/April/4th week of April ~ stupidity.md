@@ -23,4 +23,4 @@ EK CHAATA MAAR DE MUJHE
 
 [[3rd week of April ~ cravings|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

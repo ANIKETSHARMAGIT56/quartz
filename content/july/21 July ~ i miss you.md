@@ -21,4 +21,4 @@ I love you
 
 [[19 July ~ Favourite|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

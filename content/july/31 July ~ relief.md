@@ -9,4 +9,4 @@ your aniket
 
 [[30 July ~ habit|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

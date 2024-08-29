@@ -26,4 +26,4 @@ and and , hayyee this kissiii , im dyinggg
 
 [[12 August ~ i need slaps|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

@@ -20,4 +20,4 @@ Radhe radheeee
 
 [[21 July ~ i miss you|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

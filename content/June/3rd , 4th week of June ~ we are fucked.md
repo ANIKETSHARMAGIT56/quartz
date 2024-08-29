@@ -16,4 +16,4 @@ Not gonna lie they were really cute , me and himank tried to teach them binary c
 
 [[2nd week of June ~chaotic peace|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]

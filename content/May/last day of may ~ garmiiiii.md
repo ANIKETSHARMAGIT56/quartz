@@ -16,4 +16,4 @@ love youuuuuu
 
 [[3rd and 4th week of may ~ idk|prev->]]
 
-[[index|homepage]]
+[[happy birthday my love|homepage]]
